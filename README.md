@@ -2,7 +2,7 @@
 Jump into the pool of knowledge discourse.
 Reading that is complex. Behind that proposition, everything is as simple as that!
 
-2. Dancing Room
+2. Dancing Room:
 
 I didn't dance in the dancing room even though it has bigger mirrors than almirah one's. Looking up for the choice will arise from two such factorial; consciousness and conscience. Looks similar, but they're not. If I bring in Mr. Gandhi to tell the existence of difference, he will obviously pretends to affirm the two distinct nature of those factors. Conscience is a soul derivative whereas the consciousness happens to be from the central nervous system. Soul says to dance in contrary to that of choice - personality check before the mirror. Now tell me whether the mirror showed the consciousness of my conscience or vice versa..
 
