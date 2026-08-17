@@ -13,3 +13,7 @@ I didn't dance in the dancing room even though it has bigger mirrors than almira
 INDEPENDENCE DAY:
 
 Look at a bird which got its freeway already and stuck in cages again to go for another round of unleashing. Yes, this time, we'll crank up the idea of independence. The matter of intelligible differentia is not even applicable when you don't have liberal setup and space to think multidimensionally. Lemme fix this. The intelligence quotient reduces itself to the position of caged parrot during the pseudo freedom. And still there is a way out plan. Come out from this bird conceptualisation and ideate beyond the birds. Putting differently, Is there any material medium to contain fluid air for lengthened period of time? What I'm asking you to be, a bird or the air or something else??
+
+PRINCIPLES:
+
+Walking a long but the same circuit resulting in a new companionship based on compassionate grounds. A dog, daily, which accompanies me within its own jurisdiction, ensuring me that it guides with a sense of security, direction, and rationale. This same understanding is engraved in the meaning of the word 'principle', where the word inherits the self-acclaimed/foundational truth which determines our way of life in a certain way with a logical and workable manner. Can we claim 'principles' as an underdog in our minds?!
