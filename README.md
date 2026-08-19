@@ -18,6 +18,10 @@ DRINK AND DRIVE:
 
 Drinking and driving donot mix. If at all there is an exception, that is the case for discourse right now. Well, it's known that prejudices preoccupy the mental fulcrum of a human. These intangible and entrenched dogma of a human drives the fundamental of decision making with an influence. Here's the gray area wherein indoctrination of presumption and the respective spirit is inextricable. Add-on to that, do I drink?! Yes, water.
 
+NIKSEN:
+
+There are instances which make us to believe that we're a free individual by disconnecting ourselves from the association of society. Is that true? Whilst the disconnection has to be concurrent with idea of 'doing nothing'. The concept of 'niksen' in dutch land prefers this as conventional and casual. In the lens of asian spectrum, this idea used to be conspired as an absolute laziness. Consider a comet which completes its fuel and what happens next after burnout. Who cares the individual, who haves their stage of exhaustion?
+
 INDEPENDENCE DAY:
 
 Look at a bird which got its freeway already and stuck in cages again to go for another round of unleashing. Yes, this time, we'll crank up the idea of independence. The matter of intelligible differentia is not even applicable when you don't have liberal setup and space to think multidimensionally. Lemme fix this. The intelligence quotient reduces itself to the position of caged parrot during the pseudo freedom. And still there is a way out plan. Come out from this bird conceptualisation and ideate beyond the birds. Putting differently, Is there any material medium to contain fluid air for lengthened period of time? What I'm asking you to be, a bird or the air or something else??
