@@ -10,6 +10,10 @@ DANCING ROOM:
 
 I didn't dance in the dancing room even though it has bigger mirrors than almirah one's. Looking up for the choice will arise from two such factorial; consciousness and conscience. Looks similar, but they're not. If I bring in Mr. Gandhi to tell the existence of difference, he will obviously pretends to affirm the two distinct nature of those factors. Conscience is a soul derivative whereas the consciousness happens to be from the central nervous system. Soul says to dance in contrary to that of choice - personality check before the mirror. Now tell me whether the mirror showed the consciousness of my conscience or vice versa..
 
+DRINK AND DRIVE:
+
+Drinking and driving donot mix. If at all there is an exception, that is the case for discourse right now. Well, it's known that prejudices preoccupy the mental fulcrum of a human. These intangible and entrenched dogma of a human drives the fundamental of decision making with an influence. Here's the gray area wherein indoctrination of presumption and the respective spirit is inextricable. Add-on to that, do I drink?! Yes, water.
+
 INDEPENDENCE DAY:
 
 Look at a bird which got its freeway already and stuck in cages again to go for another round of unleashing. Yes, this time, we'll crank up the idea of independence. The matter of intelligible differentia is not even applicable when you don't have liberal setup and space to think multidimensionally. Lemme fix this. The intelligence quotient reduces itself to the position of caged parrot during the pseudo freedom. And still there is a way out plan. Come out from this bird conceptualisation and ideate beyond the birds. Putting differently, Is there any material medium to contain fluid air for lengthened period of time? What I'm asking you to be, a bird or the air or something else??
