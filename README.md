@@ -6,6 +6,10 @@ NEW IDEA:
 
 Think of something which you haven't ever seen! And I'll tell you the reference where you took it from. So, it's the system's setting already built up around you, push further and sets you in setting of future. Try a little bit by clubbing the clumsy one's. It ends up the same. While I'm trying to think of those new one's, it's my real existence where I'm seeing you all with new faces in new places with unique attributes and characteristics. That's never seen before right?! Or else already seen in setting..
 
+HANDSOME PEACOCK:
+
+I'm seeing and hearing this peacock through the window often, of late. I could able to derive the polynomial function of shade and gradient of the color in its fine texture which unravels the 'n' number of possibilities to perceive the color codes. But the way of people's minimalism have reduced the billion possibilities into mere binary outlook. It's not a sad reality, but a bad enigma.
+
 BANANA LEAF:
 
 This banana leaf have a distinct attribute as same as human evolution, it craves for the existence by sculpting itself amidst the wear and tear of shear wind which eagerly waits to break the matter. By the way, this view, I suppose there is a golden mean of biocentric and anthropocentric ideas. No leanings to one such frame of these ideas.
